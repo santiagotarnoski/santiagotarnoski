@@ -14,8 +14,6 @@
 
   ✨ I love using Software as a solution for every `Problem`.
 
-  🤔 I’m Not looking for help
-
   ✔ Ask me about anything, I am happy to help
 
   📫 How to reach me:  
